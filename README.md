@@ -1,2 +1,0 @@
-# shoptet-styles
-vinotekazbiroh.com
